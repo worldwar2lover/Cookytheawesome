@@ -3,7 +3,7 @@ Ok uh this is going to be the most boring info in the github........ soo hi ! my
 
 
 
-im always active in pony town, in the ch areas so feel free to c+h or int me no doubt! though, unless i have dniuf or something like that in my name don't, probably i feel very depressed and something goes wrong...
+im always active in pony town, in the ch areas so feel free to c+h or int me no doubt! though, unless i have dniuf or something like that in my name don't, probably i feel very depressed and something goes wrong... andd idrm talking about some weird/dark topics cuz, does it affect me?? no right ahhahahaahah.. what.
 
 
 
@@ -19,7 +19,7 @@ i am diagnosed with ADHD and i have anxiety so i might have bad conversation wit
 
 
 
-I NEED FRIENDS... MOST OF MY FRIENDS ARE ALWAYS UNACTIVE AND I CANNOT HANDLE BEING ALONE AND I NEED SOMEONE...(but i luv my moots very much) 
+I NEED FRIENDS... MOST OF MY FRIENDS ARE ALWAYS UNACTIVE AND I CANNOT HANDLE BEING ALONE AND I NEED SOMEONE...(but i luv my moots very much) but i feel very lefted out when someone ignored me when some of my friends are online but they ignore me which thats why u would always see me sitting alone... but im getting used to it (not really); i felt very comfortable with them. or even literally anyone who encs themself to sit or int to me !!
 
 
 
